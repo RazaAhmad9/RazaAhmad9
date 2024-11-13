@@ -1,5 +1,3 @@
-### Hi there 👋
-## Hi there 👋
 # Hi there 👋
 
 - 👋 Hi, I’m @AhmadRaza9
